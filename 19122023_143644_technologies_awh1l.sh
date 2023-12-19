@@ -1,0 +1,1 @@
+Sawney Beane, his wife, 8 sons, 6 daughters, and 32 grandchildren were a family of cannibals that lived in the caves near Galloway, Scotland in the early 17th Century. Although the total number is not known, it is believed they claimed over 50 victims per year. The entire family was taken by an army detachment to Edinburgh and executed, apparently without trial
